@@ -6,8 +6,6 @@ Then, after what feels like an infinite number of moments, a new human being is 
 
 ![Ojas in NICU](./images/week1/nicu.jpeg)
 
-<img src="./images/week1/nicu.jpeg" alt="Ojas - NICU" width="500" height="500"/>
-
 However, due to some complications, the doctors decided to keep our baby in the NICU. We were barely allowed to touch him, and watching him be taken away was a painful moment. We anxiously waited, wondering what might happen next. After what seemed like forever, the doctors allowed us to meet little Ojas after four hours.
 
 They told us to avoid stimulating him and to keep him calm. They were closely monitoring his heart rate and oxygen levels, and though it was technically an ICU, the hospital staff had created such a positive, welcoming vibe—it felt more like a nursery than a medical facility.
