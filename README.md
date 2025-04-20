@@ -4,6 +4,9 @@ The day of birth is often regarded as the most difficult day in anyone's life. A
 
 Then, after what feels like an infinite number of moments, a new human being is born. We didn’t know the gender beforehand, so the first time I saw him, it was nothing short of magical. That moment turned one of the most challenging days into the happiest day of my life.
 
+![Ojas in NICU](./images/week1/nicu.jpeg)
+
+
 However, due to some complications, the doctors decided to keep our baby in the NICU. We were barely allowed to touch him, and watching him be taken away was a painful moment. We anxiously waited, wondering what might happen next. After what seemed like forever, the doctors allowed us to meet little Ojas after four hours.
 
 They told us to avoid stimulating him and to keep him calm. They were closely monitoring his heart rate and oxygen levels, and though it was technically an ICU, the hospital staff had created such a positive, welcoming vibe—it felt more like a nursery than a medical facility.
